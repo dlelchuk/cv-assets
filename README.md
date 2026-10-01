@@ -1,0 +1,1 @@
+Assets públicos para el CV de Daniel Lelchuk Rojas.
